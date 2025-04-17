@@ -1,4 +1,4 @@
-# Prostazen (OFFICIAL REPORT) Fix BPH And Prostate Issues, Reduce Urinary Tract Infections
+# ProstAfense (OFFICIAL REPORT) Fix BPH And Prostate Issues, Reduce Urinary Tract Infections
 
 <h1 style="text-align: left;"><strong>ProstAfense&trade;</strong></h1>
 <p><strong>Product Name:</strong> ProstAfense&trade; &ndash; Prostate Health Support Formula (<a href="https://www.globalfitnessmart.com/get-prostafense">Order HERE</a>).</p>
